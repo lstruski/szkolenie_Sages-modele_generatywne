@@ -1,0 +1,1 @@
+# szkolenie_Sages-modele_generatywne
